@@ -1,4 +1,4 @@
-
+Things 3 for macOS new Workflow - collaboration and custom shortcuts offers the most advanced Things 3 for macOS workflow, with collaboration and custom shortcuts. Ideal for
 
 
 
